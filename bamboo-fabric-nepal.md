@@ -45,6 +45,8 @@ Diamond Knitland is a Nepal-based knitwear manufacturer specializing in:
 - Bamboo clothing
 
 Website: https://diamondknitland.com  
-Blog: https://diamondknitland.com/bamboo-fabric-nepal/  
 Email: biju@diamondknitland.com  
+
 Phone: +977 9851024416
+Original Article:
+https://diamondknitland.com/bamboo-fabric-nepal/
